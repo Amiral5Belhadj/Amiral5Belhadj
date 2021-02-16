@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amiral Belhadj
-- 👀 I’m interested in 
+- 👀 I’m interested in Biological agriculture 
 - 🌱 I’m currently learning informatique in General
 - 💞️ I’m looking to collaborate on Cryptocurrencies Mining 
 - 📫 my email : Send.Dream87500@gmail.com
